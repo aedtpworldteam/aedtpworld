@@ -1,4 +1,7 @@
 # aedtpworld
+
+<h1>ABOUT AEDTP WORLD | BUSINESS DEVELOPMENT NETWORK</h1>
+
 Discover And Connect
 
 AEDTP WORLD is a Ghana-based global distribution and promotional services company founded by Emmanuel Deliver Amable on April 14, 2024. The company aims to empower businesses, creators, and musicians by providing innovative, cost-effective solutions to expand their global reach.(SoundBetter)
